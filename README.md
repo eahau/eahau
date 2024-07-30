@@ -30,7 +30,7 @@ Combining the above two points, I want to become a digital nomad in recent years
 ### Languages
 
   - Chinese (Native)
-  - English (Elemental-A2)
+  - English (Elementary-A2 to B1)
 
 ### Resume
 - [Chinese](https://yixiao.my.canvasite.cn/)
