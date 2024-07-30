@@ -27,3 +27,7 @@ Here are some ideas to get you started:
 
   - Chinese (Native)
   - English (Elemental-A2)
+
+### Resume
+- [Chinese](https://yixiao.my.canvasite.cn/)
+- [English](https://yixiao.my.canvasite.cn/eng)
