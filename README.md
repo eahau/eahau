@@ -12,11 +12,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-🔍️ I'm seeking a job without overtime. It would be better if it's remote.  
-🌱 I'm currently learning English&Janpanese and hope i can speak English fluently in 2 years.    
-😄 I'm YiXiao Wang. Before today(07/30/2024), my English name was Eahau. However, its pronunciation is a bit strange.     
+- 🔍️ I'm seeking a job without overtime. It would be better if it's remote.  
+- 🌱 I'm currently learning English&Janpanese and hope i can speak English fluently in 2 years.    
+- 😄 I'm YiXiao Wang. Before today(07/30/2024), my English name was Eahau. However, its pronunciation is a bit strange.     
 So forget it, I'm Ethan now.
-Combining the above two points, I want to become a digital nomad in recent years and travel around the world.  
+Combining the above two points, I want to become a digital nomad in the following years and travel around the world.  
 
 
 ### Skills
